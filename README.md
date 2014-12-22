@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-PANCHARIS: The first Booke. Containing The Preparation of the Loue betweene OVVEN TVDYR, and the QVE
+
 1. TO MY LORD THE KING. Sonet Acroſticke.
 
 1. TO THE BRIGHT QVEENE ANNE his deere Wife, and our dread Lady.
